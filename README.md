@@ -1,2 +1,2 @@
-# beauty-prototypes
+# shower-oil
 beauty flows through your body
